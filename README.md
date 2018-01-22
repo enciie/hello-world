@@ -1,2 +1,5 @@
 # hello-world
-idea board
+
+Avid traveler. 
+Ocassional backpacker.
+Newly certified Padi Scuba Diver. 
